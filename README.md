@@ -1,4 +1,4 @@
-![Radid desfandri](/img/github-header-image.png)
+
 
 
 ##### 🌐 Socials:
